@@ -1,2 +1,1 @@
-# DERDER-EDMUND-PORTFOLIO
 # porfolio
